@@ -1,0 +1,2 @@
+# Omadebk
+doimo quvonib yasha
